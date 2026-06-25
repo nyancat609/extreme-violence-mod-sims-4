@@ -9,7 +9,7 @@ The **🔪 Extreme Violence Mod Sims 4** is the most intense and controversial m
 
 <div align="center">
 
-[![Download Extreme Violence Mod Sims 4](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/extreme-violence-mod-sims-4)
+[![Download Extreme Violence Mod Sims 4](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/extreme-violence-mod-sims-4)
 
 </div>
 
@@ -121,7 +121,7 @@ Vanilla Sims 4 doesn't offer violence. You want darker gameplay. More mature the
 6. **🔪 Find Violence Menu** — click on any Sim
 7. **⚡ Choose Action** — fight, kill, or recruit
 
-[![Download Extreme Violence Mod Sims 4](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/extreme-violence-mod-sims-4)
+[![Download Extreme Violence Mod Sims 4](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/extreme-violence-mod-sims-4)
 
 ### Using Violence Menu
 
@@ -220,7 +220,7 @@ Make your Sims world dangerous. **Extreme Violence Mod Sims 4** adds fighting, w
 
 <div align="center">
 
-[![Download Extreme Violence Mod Sims 4](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/extreme-violence-mod-sims-4)
+[![Download Extreme Violence Mod Sims 4](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/extreme-violence-mod-sims-4)
 
 **Version 4.6.1** — Dark Sims 4 gameplay. Free forever.
 
